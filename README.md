@@ -1,0 +1,2 @@
+# Gana
+Aditya Degree college 
